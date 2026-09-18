@@ -1,4 +1,4 @@
-# Hey, I'm Sasha 👋
+# Hey, I'm Aleksandra
 
 Product / UI/UX designer focused on making digital products feel clear, thoughtful, and a little less boring.
 
